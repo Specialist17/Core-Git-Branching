@@ -12,13 +12,14 @@ After his typical breakfast of toast and an egg he left for school.
 Normally Fernando would have walked down Bleaker street, but today there was construction and he decided to take Flanders behind the zoo.
 
 Being on time was not one of Fernando’s specialities today would prove to be no different.
-As he moved slowly.
+As he moved slowly, he stumbled upon the Zookeeper and he started talking to him about the Friendly Koala.
 As he walked behind the zoo he could see the trees and thick foliage growing above the heavy stone wall that ran behind the zoo; and hear the sounds of animals in the distance.
-Fernando had heard the sound before, but today there was a new sound, sort of a cross between an angelic horn and an elephant’s trumpet.
+He could hear the sounds of lions and zebras. He heard the famous Loud Monkey and the thump of the bananas as he threw them around.
+Fernando had heard the sounds before, but today there was a new sound, sort of a cross between an angelic horn and an elephant’s trumpet.
 He stopped to listen and noticed a heavy wooden door in the zoo wall was ajar.
 
 Normally Fernando would leave well enough alone, but he was worried that an animal might escape.
-He stuck his head in the door, the color of the foliage was intense greens, browns and chartreuse, he called out for a zoo keeper but got no response.
+He stuck his head in the door, the color of the foliage was intense greens, browns and chartreuse, he called out for the Zookeeper but got no response.
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
@@ -32,3 +33,4 @@ The end.
 * Unicorn King: Alan
 * Zookeeper: Braus
 * Friendly Koala: Mike
+* Loud Monkey: Esteban Julio Ricardo Montoya de la Rosa Ramirez
