@@ -22,7 +22,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Fernando met the Unicorn King who granted him magic powers.
+As he walked through the path, Fernando felt the smell intensifying. He started hearing what might have be confused with the sound of a horse, but this was different. He saw a black majestic beast, with a colored horn, and golden hair galloping around at the end of the path. Fernando met the Unicorn King who granted him magic powers.
 The end.
 
 ## Cast
